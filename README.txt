@@ -1,0 +1,1 @@
+THANK YOU FOR DOWNLOAD. RUN "NovaPatcher" so you can fix files/create acc 
